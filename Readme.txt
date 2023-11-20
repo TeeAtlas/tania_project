@@ -1,1 +1,1 @@
-Hello guys, leave a greeting or a message in the html doc, or here. Byeeee
+Hello guys, leave a greeting or a message or an image anywhere you like. Byeeee
